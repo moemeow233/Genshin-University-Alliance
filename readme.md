@@ -23,7 +23,8 @@
 [www.原神大学.love](http://www.原神大学.love) → 燕山大学  
 [www.山西原神大学.com](http://www.山西原神大学.com) → 中北大学  
 [www.原神理工大学.com](http://www.原神理工大学.com) → 太原理工大学  
-[www.国立原神大学.com](http://国立原神大学.com) → 山东大学  
+[www.国立原神大学.com](http://国立原神大学.com) → 山东大学
+[www.提瓦特皇家医学院.tech](https://www.提瓦特皇家医学院.tech) → 山东医学高等专科学校
 [www.西安原神大学.com](http://www.西安原神大学.com) → 西安电子科技大学  
 [www.原神怎么你了.top](http://原神怎么你了.top) → 兰州大学  
 [www.河南原神大学.com](http://www.河南原神大学.com) → 郑州轻工业大学  
